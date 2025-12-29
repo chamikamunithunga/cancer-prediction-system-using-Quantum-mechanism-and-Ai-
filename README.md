@@ -1,0 +1,1 @@
+the normal Ai system data understanding by numbers. but Quantum system program understanding data by "energy leveles" and "interface pattrns" it can be used to predict sensitive complex diseases in the future with high accuracy.
